@@ -1,5 +1,4 @@
 ### Hi, i'm Gabi Farias!😊 
-### Tere tere vana kere, Kuidas elab sinu pere? Olen Gabi Farias!😊
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/gabrielafariasads/)
 
